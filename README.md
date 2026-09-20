@@ -234,4 +234,4 @@ You can check the official support page for troubleshooting tips or contact cust
 Don't miss out on the fun! **Download Schoolboy Runaway free** today and embark on an unforgettable adventure!
 
 ---
-**Last updated:** 2026-09-20 18:02:57 UTC
+**Last updated:** 2026-09-20 21:13:19 UTC
